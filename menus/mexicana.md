@@ -21,3 +21,13 @@ Pechuga de pollo bañada en una rica salsa de mole poblano, que combina chiles s
 -Quesadillas
 Tortillas de maíz o harina rellenas de queso y otros ingredientes como flor de calabaza, hongos, tazas de chapulines o carne. Se doblan por la mitad y se cocinan hasta que el queso se derrite.
 
+
+Bebidas recomendadas:
+
+-Tequila: El tequila es la bebida alcohólica por excelencia de México. Ideal para disfrutar con una comida mexicana, especialmente en un margarita o solo, acompañado de sal y limón.
+
+-Agua fresca de horchata: Una bebida refrescante a base de arroz, canela y vainilla, perfecta para acompañar cualquier comida picante.
+
+-Mezcal: Una bebida alcohólica similar al tequila pero con un sabor más ahumado. Es ideal para disfrutar solo o en cócteles.
+
+-Michelada: Una cerveza fría con jugo de limón, salsa picante, salsa Worcestershire y sal. Ideal para los días calurosos.
