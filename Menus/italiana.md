@@ -17,3 +17,10 @@ Pasta de fettuccine bañada en una salsa cremosa de mantequilla, crema y queso p
 
 -Vitello Tonnato
 Finas lonchas de ternera frías servidas con una salsa a base de atún, alcaparras, mayonesa y limón.
+
+Bebidas recomendadas:
+
+-Vino tinto Chianti: Ideal para acompañar platos de pasta y carne, su sabor afrutado y ligeramente ácido complementa muy bien los sabores italianos.
+-Vino blanco Pinot Grigio: Perfecto para maridar con platos de mariscos y risottos ligeros.
+-Limoncello: Un licor tradicional de limón que se sirve como digestivo después de la comida.
+-Espresso: Para finalizar la comida, un espresso italiano es la mejor opción, fuerte y aromático.
