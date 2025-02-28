@@ -31,3 +31,14 @@ Bebidas recomendadas:
 
 -Agua con gas con rodajas de limón: La opción más sencilla y refrescante, ideal para acompañar cualquier plato ligero y fresco de la cocina mediterránea.
 
+Consejos y sugerencias:
+
+-Aprovecha los ingredientes frescos: La cocina mediterránea se basa en la frescura de los ingredientes, por lo que es esencial elegir productos de temporada y locales siempre que sea posible.
+
+-Usa aceite de oliva de calidad: El aceite de oliva es fundamental en la cocina mediterránea, tanto para cocinar como para aderezar. Opta por un buen aceite extra virgen para un sabor más auténtico.
+
+-No tengas miedo de mezclar hierbas y especias: El uso generoso de hierbas frescas como el romero, el orégano, el tomillo, la menta y el perejil es clave en esta cocina. Estas hierbas aportan frescura y sabor sin necesidad de exceso de sal.
+
+-Comer en buena compañía: La cocina mediterránea se disfruta mejor en reuniones sociales y familiares. Los platos son perfectos para compartir y disfrutar lentamente mientras se conversa y se disfruta de un buen vino.
+
+-Platos ligeros y saludables: A menudo, la comida mediterránea está pensada para ser ligera pero llena de sabor. Los pescados, las ensaladas y los platos a base de vegetales son siempre una opción saludable y deliciosa.
