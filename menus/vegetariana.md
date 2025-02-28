@@ -30,3 +30,16 @@ Bebidas recomendadas:
 -Té helado: El té helado sin azúcar, ya sea de té verde, negro o de hierbas, es una opción refrescante que se combina bien con comidas ligeras y sabrosas.
 
 -Smoothie verde: Hecho con espinacas, pepino, manzana verde, limón y un poco de jengibre, este batido es una opción saludable y energizante.
+
+
+Consejos y sugerencias:
+
+-Aprovecha las legumbres y los granos: Las legumbres como los garbanzos, lentejas y frijoles son excelentes fuentes de proteína vegetal. Los granos como la quinoa, el arroz integral o el farro son una buena base para cualquier plato vegetariano.
+
+-No subestimes el poder de las especias: Las especias son clave para realzar los sabores en la cocina vegetariana. No dudes en usar cúrcuma, comino, cilantro, ajo, jengibre, pimentón, y hierbas frescas como albahaca, orégano o tomillo para dar profundidad a los platos.
+
+-Añade proteínas vegetales: Si necesitas más proteína, incorpora alimentos como tofu, tempeh, edamame o nueces. Estos ingredientes pueden ser la base de platos sustanciosos y satisfactorios.
+
+-Haz tus propios aderezos y salsas: Las salsas caseras como el guacamole, hummus, tahini o yogur de soja, son opciones perfectas para acompañar ensaladas, tacos o cualquier plato vegetal.
+
+-Hazlo equilibrado: Asegúrate de que tus platos vegetales tengan una combinación adecuada de carbohidratos, proteínas y grasas saludables para obtener una comida completa y nutritiva.
