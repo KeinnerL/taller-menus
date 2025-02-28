@@ -21,3 +21,13 @@ Delgadas crepas servidas con una salsa de naranja, mantequilla, licor de naranja
 -Cheesecake de Frambuesa
 Una tarta de queso cremosa y suave sobre una base de galletas trituradas, con una capa de mermelada de frambuesa que le da un toque ácido y afrutado. Este postre es perfecto para los que disfrutan de una textura rica y un sabor refrescante.
 
+Bebidas recomendadas:
+
+-Café Espresso: Ideal para acompañar postres como el tiramisú, el café espresso ofrece un sabor fuerte que complementa la dulzura del postre, además de ayudar a equilibrar el sabor.
+
+-Vino de Postre: Un vino dulce como un Sauternes, Moscato o un Pedro Ximénez es perfecto para acompañar postres como la tarta de limón o el mousse de chocolate, ya que sus notas dulces y afrutadas realzan los sabores del postre.
+
+-Chocolate Caliente: Un chocolate caliente espeso y cremoso es ideal para acompañar postres más ligeros o aquellos a base de frutas, como la tarta de limón y merengue o el cheesecake.
+
+-Limonada Casera: Para una opción refrescante, una limonada casera bien fría puede ser perfecta para limpiar el paladar, especialmente con postres más dulces o frutales.
+
