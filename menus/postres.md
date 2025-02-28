@@ -31,3 +31,14 @@ Bebidas recomendadas:
 
 -Limonada Casera: Para una opción refrescante, una limonada casera bien fría puede ser perfecta para limpiar el paladar, especialmente con postres más dulces o frutales.
 
+Consejos y sugerencias:
+
+-Equilibrio entre dulzura y acidez: Muchos postres funcionan bien cuando tienen un toque de acidez para equilibrar la dulzura. Por ejemplo, el limón en una tarta o las frambuesas en un cheesecake aportan esa frescura que ayuda a no hacer que el postre sea demasiado empalagoso.
+
+-Cuidado con la temperatura: Algunos postres, como el mousse de chocolate o el tiramisú, deben servirse fríos para lograr la textura ideal. Asegúrate de refrigerarlos por el tiempo adecuado antes de servirlos.
+
+-Juega con las texturas: Los postres con una combinación de texturas, como una mousse suave con una base crujiente o una tarta cremosa con una capa crocante, pueden ser especialmente deliciosos. No dudes en experimentar con diferentes formas de combinar ingredientes.
+
+-Personaliza los sabores: Si un postre tradicional como el tiramisú te gusta pero quieres algo diferente, prueba añadirle sabores adicionales como vainilla, cacao o incluso frutos rojos para darle un toque único.
+
+-Presentación: La presentación de los postres es clave para hacer que el final de una comida sea aún más especial. Asegúrate de decorar con frutas frescas, cacao en polvo, frutos secos o hierbas frescas como la menta para dar un toque visual y sabor extra.
