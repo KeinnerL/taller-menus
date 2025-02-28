@@ -30,3 +30,17 @@ Bebidas recomendadas:
 -Whiskey: Para una opción más elegante, un vaso de buen whiskey o bourbon puede ser una bebida excelente para acompañar carnes a la parrilla o estofadas. La suavidad y el toque ahumado del whiskey complementan muy bien los sabores de la carne.
 
 -Agua con gas con rodajas de limón: Para refrescar el paladar entre bocados, el agua con gas con un toque de limón es una opción ideal, además de mantenerte hidratado durante la comida.
+
+Consejos y sugerencias:
+
+-Cocina a la temperatura correcta: Asegúrate de cocinar las carnes a la temperatura adecuada para garantizar que estén jugosas y tiernas. Utiliza un termómetro de cocina para saber si tu carne ha alcanzado el punto deseado.
+
+-Deja reposar la carne: Después de cocinarla, es importante dejar que la carne repose durante unos minutos antes de cortarla. Esto ayuda a que los jugos se redistribuyan, haciendo que la carne sea más jugosa y sabrosa.
+
+-Marinar las carnes: Las marinadas no solo aportan sabor, sino que también ayudan a que las carnes sean más tiernas. Experimenta con diferentes combinaciones de hierbas, especias y líquidos como vino, vinagre o jugo de cítricos.
+
+-Corte adecuado de carne: Cada tipo de carne tiene su corte ideal. Los cortes más gruesos como el rib-eye o el tomahawk son excelentes para la parrilla, mientras que los cortes más magros como el pollo o el lomo de cerdo pueden ser perfectos para cocinar a la sartén o al horno.
+
+-No olvides los acompañamientos: Los acompañamientos como las papas, ensaladas frescas, arroz o vegetales asados equilibran perfectamente los sabores intensos de la carne. 
+
+-También puedes experimentar con salsas como la de mostaza, hierbas o chimichurri para realzar el sabor.
