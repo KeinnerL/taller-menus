@@ -30,3 +30,15 @@ Bebidas recomendadas:
 -Baijiu: Un licor tradicional chino, generalmente fuerte y con un sabor distintivo. Es una bebida para ocasiones especiales y se disfruta en pequeñas cantidades.
 
 -Cerveza china: Marcas como Tsingtao o Snow Beer ofrecen cervezas ligeras y refrescantes que complementan perfectamente los sabores salados y picantes de la comida china.
+
+Consejos y sugerencias:
+
+-Acompaña con arroz o fideos: Los platos chinos generalmente se sirven con arroz o fideos como acompañamiento. Los fideos chinos son muy versátiles y pueden ser fritos o en sopa.
+
+-Evita sobrecargar el plato de salsa: En la cocina china, la salsa de soja y otras salsas son esenciales, pero se debe tener cuidado de no hacer el plato demasiado salado. La moderación es clave.
+
+-Disfruta de los sabores equilibrados: Los platos chinos a menudo combinan un balance de sabores dulces, salados, ácidos y picantes. No dudes en probar diferentes combinaciones para experimentar la armonía en cada bocado.
+
+-Comer con palillos: Si decides comer con palillos, tómate tu tiempo para practicar y disfrutar de la experiencia de comer de la manera tradicional. Si no estás acostumbrado, puedes pedir tenedor o cuchara sin problema.
+
+-Comida compartida: En la cultura china, los platos suelen ser servidos en grandes porciones para compartir entre amigos o familia. No dudes en probar un poco de cada platillo para una experiencia completa.
