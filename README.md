@@ -3,7 +3,7 @@
 Bienvenido a la **Guía de Menús Gastronómicos**, una recopilación de menús cuidadosamente seleccionados para diferentes tipos de cocina. Explora nuestras opciones y déjate inspirar para preparar comidas deliciosas. ​ 
 ## Tipos de Cocina ​ 
 
-- [Cocina Italiana](menus/italiana.md): Descubre los sabores tradicionales de Italia con platos como pizza, pasta y risotto. 
+- [Cocina Italiana](Menus/italiana.md): Descubre los sabores tradicionales de Italia con platos como pizza, pasta y risotto. 
 - [Cocina Mexicana](menus/mexicana.md): Vive la experiencia de México con tacos, enchiladas y margaritas. 
 - [Cocina Japonesa](menus/japonesa.md): Sushis, ramen y más delicias niponas. 
 - [Cocina India](menus/india.md): Platos especiados como curry y biryani. 
