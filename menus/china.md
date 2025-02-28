@@ -21,3 +21,12 @@ Un plato de la región de Sichuan que combina tofu suave con carne de cerdo o re
 -Arroz Frito (Chao Fan)
 Un plato simple pero delicioso, hecho con arroz cocido, verduras, carne (pollo, cerdo, camarones) y huevo, todo salteado con salsa de soja. Es una forma perfecta de aprovechar el arroz sobrante.
 
+Bebidas recomendadas:
+
+-Té verde: El té verde es la bebida tradicional de la cocina china. Es ligero y refrescante, ideal para acompañar cualquier plato, especialmente aquellos con sabores más intensos.
+
+-Té de jazmín: Un té aromático con un toque floral, que es perfecto para equilibrar los sabores umami y especiados de los platos chinos.
+
+-Baijiu: Un licor tradicional chino, generalmente fuerte y con un sabor distintivo. Es una bebida para ocasiones especiales y se disfruta en pequeñas cantidades.
+
+-Cerveza china: Marcas como Tsingtao o Snow Beer ofrecen cervezas ligeras y refrescantes que complementan perfectamente los sabores salados y picantes de la comida china.
