@@ -21,3 +21,13 @@ Mariscos o verduras (como camarones, calabacín, berenjena) rebozados y fritos, 
 -Donburi (Gyudon)
 Un tazón de arroz cubierto con carne de res cocida con cebolla, en una salsa a base de soja y mirin, y servido con un huevo crudo o frito encima.
 
+Bebidas recomendadas:
+
+-Sake: Un licor de arroz japonés, que puede servirse caliente o frío, ideal para acompañar sushi y platos a base de pescado.
+
+-Té verde (Matcha): El té verde japonés es refrescante y se puede disfrutar tanto caliente como frío. Es perfecto para equilibrar los sabores de los platos.
+
+-Cerveza Asahi o Sapporo: Las cervezas japonesas son ligeras y refrescantes, ideales para acompañar tempura o sushi.
+
+-Shochu: Un licor destilado japonés, similar al vodka pero con un sabor más suave, que se disfruta con hielo o mezclado con agua.
+
