@@ -21,3 +21,12 @@ Pechugas o muslos de pollo marinados en una mezcla de aceite de oliva, limón, t
 -Steak a la Parrilla con Mantequilla de Ajo y Perejil
 Un corte de carne de res, como el rib-eye o el filete, cocinado a la parrilla a la perfección. Se sirve con una mantequilla derretida de ajo y perejil por encima, aportando un extra de sabor y suavidad. Perfecto con papas fritas o ensalada.
 
+Bebidas recomendadas:
+
+-Vino Tinto: Un vino tinto robusto, como un Cabernet Sauvignon o Malbec, es ideal para acompañar platos de carne roja como el asado de tira o el steak a la parrilla. Su cuerpo y taninos complementan la riqueza de la carne.
+
+-Cerveza Artesanal: Una cerveza amarga, como una IPA, puede combinar bien con costillas a la barbacoa, ya que la amargura equilibra la dulzura de la salsa. Si prefieres una opción más ligera, una lager o pilsner también es excelente.
+
+-Whiskey: Para una opción más elegante, un vaso de buen whiskey o bourbon puede ser una bebida excelente para acompañar carnes a la parrilla o estofadas. La suavidad y el toque ahumado del whiskey complementan muy bien los sabores de la carne.
+
+-Agua con gas con rodajas de limón: Para refrescar el paladar entre bocados, el agua con gas con un toque de limón es una opción ideal, además de mantenerte hidratado durante la comida.
