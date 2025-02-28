@@ -21,3 +21,13 @@ Una tarta salada hecha con una base de masa quebrada, rellena de una mezcla de c
 -Steak Frites
 Un clásico de la cocina francesa que consiste en un filete de res cocinado al gusto, acompañado de papas fritas crujientes. A menudo se sirve con una salsa de mantequilla o salsa de mostaza.
 
+Bebidas recomendadas:
+
+-Vino tinto Bordeaux: Con su sabor robusto y afrutado, el vino de la región de Burdeos es ideal para acompañar platos de carne como el Coq au Vin o el Steak Frites.
+
+-Vino blanco Chardonnay: Un vino fresco y afrutado que va bien con platos más ligeros como la Bouillabaisse o la Ratatouille.
+
+-Champán: El champán es la bebida por excelencia de la cocina francesa, ideal para brindar o como acompañamiento en celebraciones.
+
+-Café espresso: Al final de la comida, no hay nada mejor que un café espresso para cerrar la experiencia culinaria, especialmente después de un delicioso postre.
+
