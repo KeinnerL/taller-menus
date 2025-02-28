@@ -21,3 +21,12 @@ Tortillas de maíz rellenas de una mezcla de vegetales como champiñones, pimien
 -Hamburguesa Vegetariana de Lentejas
 Hamburguesas hechas con lentejas cocidas, zanahorias ralladas, cebolla, ajo y especias, todo ligado con un poco de harina y huevo (o sustituto vegano). Se sirven en panecillos con lechuga, tomate, cebolla y salsa de tu elección.
 
+Bebidas recomendadas:
+
+-Jugo de frutas natural: Opta por jugos frescos de frutas como naranja, piña, manzana o granada. Son refrescantes y llenos de vitaminas.
+
+-Agua de coco: Una bebida hidratante y refrescante, rica en electrolitos, perfecta para acompañar platos frescos y ligeros.
+
+-Té helado: El té helado sin azúcar, ya sea de té verde, negro o de hierbas, es una opción refrescante que se combina bien con comidas ligeras y sabrosas.
+
+-Smoothie verde: Hecho con espinacas, pepino, manzana verde, limón y un poco de jengibre, este batido es una opción saludable y energizante.
