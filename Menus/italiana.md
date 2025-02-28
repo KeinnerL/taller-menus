@@ -24,3 +24,10 @@ Bebidas recomendadas:
 -Vino blanco Pinot Grigio: Perfecto para maridar con platos de mariscos y risottos ligeros.
 -Limoncello: Un licor tradicional de limón que se sirve como digestivo después de la comida.
 -Espresso: Para finalizar la comida, un espresso italiano es la mejor opción, fuerte y aromático.
+
+Consejos y sugerencias:
+
+-Frescor y simplicidad: En la cocina italiana, los ingredientes frescos son clave. Siempre que sea posible, utiliza productos frescos y de temporada.
+-No sobrecargar los platos: La cocina italiana prefiere los sabores simples y naturales. No es necesario añadir demasiados ingredientes o especias.
+-Disfrutar lentamente: La comida italiana se disfruta mejor en buena compañía, así que siéntate, relájate y saborea cada bocado.
+-Maridar correctamente: El vino es una parte esencial de la gastronomía italiana. Asegúrate de combinar los vinos adecuados con los platos para realzar los sabores.
