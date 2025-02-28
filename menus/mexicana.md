@@ -31,3 +31,13 @@ Bebidas recomendadas:
 -Mezcal: Una bebida alcohólica similar al tequila pero con un sabor más ahumado. Es ideal para disfrutar solo o en cócteles.
 
 -Michelada: Una cerveza fría con jugo de limón, salsa picante, salsa Worcestershire y sal. Ideal para los días calurosos.
+
+Consejos y sugerencias:
+
+-El picante es parte de la experiencia: La comida mexicana a menudo es picante, pero puedes ajustar el nivel de picante según tu gusto. El chile es una parte integral de muchos platos.
+
+-Disfruta los sabores frescos: Ingredientes frescos como cilantro, cebolla, lima y aguacate son comunes en la cocina mexicana y realzan mucho el sabor de los platillos.
+
+-Acompañamientos son clave: No olvides los acompañamientos tradicionales como los frijoles refritos, el arroz y las salsas caseras para acompañar tus platillos.
+
+-Comparte en buena compañía: La comida mexicana se disfruta mejor cuando se comparte en una mesa con amigos y familia, ya que los platillos suelen ser abundantes y sabrosos.
