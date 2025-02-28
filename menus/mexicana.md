@@ -1,1 +1,3 @@
 Menú de Cocina Mexicana
+Descripción del tipo de cocina:
+La cocina mexicana es rica, vibrante y llena de sabores intensos. Se caracteriza por su diversidad de ingredientes, desde el maíz y los frijoles hasta el chile, el aguacate y una gran variedad de especias. La cocina mexicana también tiene una fuerte influencia de las tradiciones prehispánicas y españolas. Es famosa por sus tacos, enchiladas, guacamole y, por supuesto, su uso distintivo del maíz en muchas formas, como tortillas, tamales y pozole.
