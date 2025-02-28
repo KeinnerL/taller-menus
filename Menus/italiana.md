@@ -1,1 +1,3 @@
 Menú de Cocina Italiana
+Descripción del tipo de cocina:
+La cocina italiana es conocida por su simplicidad, utilizando ingredientes frescos y de alta calidad. Se basa en el uso de pastas, aceites de oliva, quesos, hierbas frescas y una variedad de carnes y mariscos. Las recetas italianas se caracterizan por su sabor auténtico y la combinación de pocos ingredientes pero muy sabrosos. Las regiones de Italia ofrecen una gran diversidad culinaria, desde las pizzas de Nápoles hasta las pastas rellenas de Emilia-Romagna.
