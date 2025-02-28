@@ -31,3 +31,13 @@ Bebidas recomendadas:
 
 -Café espresso: Al final de la comida, no hay nada mejor que un café espresso para cerrar la experiencia culinaria, especialmente después de un delicioso postre.
 
+Consejos y sugerencias:
+
+-Disfruta de la técnica detrás de los platos: La cocina francesa pone un gran énfasis en la técnica, desde la correcta cocción del pollo hasta la preparación precisa de las salsas. Tómate tu tiempo para apreciar la dedicación que se pone en cada plato.
+
+-Marida correctamente con vino: Los vinos franceses son parte esencial de la experiencia gastronómica. Asegúrate de elegir el vino adecuado para acompañar tus platos, ya sea tinto, blanco o espumoso.
+
+-No apresurarse al comer: En Francia, las comidas se disfrutan con calma. Las comidas largas y pausadas son una tradición, por lo que no dudes en saborear cada bocado.
+Prepara el plato con ingredientes frescos: En la cocina francesa, la calidad de los ingredientes es primordial. Siempre que sea posible, utiliza productos frescos y de alta calidad.
+
+-La importancia del queso y el pan: No olvides terminar tu comida con una selección de quesos franceses y pan crujiente. El queso es una parte fundamental de la cultura gastronómica francesa.
