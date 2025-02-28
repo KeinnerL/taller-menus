@@ -21,3 +21,13 @@ Una ensalada fresca originaria de la región del Levante, hecha con bulgur (trig
 -Salmón a la parrilla con hierbas y limón
 El pescado fresco es fundamental en la dieta mediterránea, y el salmón a la parrilla, preparado con aceite de oliva, hierbas frescas como el romero y el tomillo, y un toque de limón, es un plato sencillo pero lleno de sabor.
 
+Bebidas recomendadas:
+
+-Vino tinto o blanco: El vino es una parte esencial de las comidas mediterráneas. Un vino tinto de la región de la Toscana o un vino blanco fresco de Grecia o España son opciones perfectas para acompañar una paella o un plato de pescado.
+
+-Sangría: Una bebida refrescante y afrutada muy popular en España. Se elabora con vino tinto, frutas como naranjas, limones, fresas y un toque de licor.
+
+-Ouzo: Un licor tradicional griego, hecho a base de anís, que se suele servir como aperitivo antes de las comidas. Tiene un sabor fuerte y refrescante.
+
+-Agua con gas con rodajas de limón: La opción más sencilla y refrescante, ideal para acompañar cualquier plato ligero y fresco de la cocina mediterránea.
+
