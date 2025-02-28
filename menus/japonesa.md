@@ -31,3 +31,14 @@ Bebidas recomendadas:
 
 -Shochu: Un licor destilado japonés, similar al vodka pero con un sabor más suave, que se disfruta con hielo o mezclado con agua.
 
+Consejos y sugerencias:
+
+-Comer sushi y sashimi de calidad: Si bien el sushi es delicioso, asegúrate de consumir pescado fresco y de calidad para disfrutar de una experiencia auténtica. No temas probar diferentes tipos de pescado crudo.
+
+-No uses demasiada salsa de soja: La salsa de soja se debe usar con moderación. El sushi ya tiene un sabor equilibrado y puede perder su sabor original si se satura con soja.
+
+-Respeta las tradiciones: El sushi se debe comer de un solo bocado, y generalmente no se debe mezclar el wasabi con la soja, ya que se debe poner una pequeña cantidad directamente sobre el sushi.
+
+-El ramen se come rápidamente: El ramen se disfruta mejor cuando se come caliente y de manera rápida, para aprovechar su sabor y textura frescos.
+
+-No sobrecargar el paladar: La cocina japonesa se basa en un equilibrio de sabores delicados. Trata de no sobrecargar tu paladar con demasiados ingredientes fuertes al mismo tiempo.
